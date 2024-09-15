@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any work related to ( web development " html/css/js/react js/tailwind css " | any project in python )
 - 📫 How to reach me :
         Email : hamzamakedi0511@gmail.com
-        Tel : +216 52 494 625
+        WhatsApp : +36206610450
 - 😄 Pronouns: He/Him
 
 <!---
